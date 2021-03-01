@@ -41,4 +41,3 @@ Interpreters of Revelation normally fall into four groups:
 
 Fortunately, the fundamental truths of Revelation do not depend on adopting a particular point of view. They are available to anyone who will read the book for its overall message and resist the temptation to become overly enamored with the details.
 
-## Revelation Savior ##
