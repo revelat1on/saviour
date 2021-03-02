@@ -30,7 +30,26 @@ For an adequate understanding of Revelation, the reader must recognize that it i
 
 ## Distinctive Feature
 
-A distinctive feature is the frequent use of the number seven (52 times). There are seven beatitudes (see note on 1:3), seven churches (1:4,11), seven spirits (1:4), seven golden lampstands (1:12), seven stars (1:16), seven seals (5:1), seven horns and seven eyes (5:6), seven trumpets (8:2), seven thunders (10:3), seven signs (12:1,3; 13:13-14; 15:1; 16:14; 19:20), seven crowns (12:3), seven plagues (15:6), seven golden bowls (15:7), seven hills (17:9) and seven kings (17:10), as well as other sevens. Symbolically, the number seven stands for completeness.
+A distinctive feature is the frequent use of the number seven (52 times). 
+
+        There are seven beatitudes (see note on 1:3), 
+        seven churches (1:4,11), 
+        seven spirits (1:4), 
+        seven golden lampstands (1:12), 
+        seven stars (1:16), 
+        seven seals (5:1), 
+        seven horns and seven eyes (5:6), 
+        seven trumpets (8:2), 
+        seven thunders (10:3), 
+        seven signs (12:1,3; 13:13-14; 15:1; 16:14; 19:20), 
+        seven crowns (12:3), 
+        seven plagues (15:6), 
+        seven golden bowls (15:7), 
+        seven hills (17:9) 
+        and seven kings (17:10), 
+        as well as other sevens. 
+
+Symbolically, the number seven stands for completeness.
 
 ## Interpretation
 
